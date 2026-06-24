@@ -10,7 +10,7 @@ wilbur / wil
 
 he/him
 
-revivebur and ghostbur fictionkin (doubles please dni)
+revivebur and simpbur fictionkin (doubles please dni)
 
 into writing, music, skatbording, n other shit ࣪𖤐.ᐟ
 
