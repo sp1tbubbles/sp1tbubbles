@@ -10,18 +10,15 @@ wilbur / wil
 
 he/him
 
-revivebur and simpbur fictionkin (doubles please dni)
+puppyboy and femboy<3
+
+pretty much comitted my entire personality to being a dumb dog on the internet lmao 
 
 into writing, music, skatbording, n other shit ࣪𖤐.ᐟ
 
 yumeshipper(no, im not fucking weird about it.)
 
-i dont have an issue with either wss or sss interacting im now nuteral on the situation so anyone can interact js dont be a toxic asshole about the situation  or anything.
-
 usually listening to some loud shit music or staring at my screen doing nothing productive
 
 kinda quiet tbh dont expect me to speak much
 
-dni if you’re genuinely rude, weird in a creepy way, or just here to start problems
-
-feel free to leave stuff to my strawpage, i enjoy reading and looking at all the stuff you all send⋆ . ࿔ ˚
